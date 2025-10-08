@@ -18,7 +18,6 @@
 
 - Extra-virgin olive oil 
 
-- Meat
 
 
 ## Instructions
