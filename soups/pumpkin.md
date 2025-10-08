@@ -12,17 +12,17 @@
 
 Salt and pepper
 
-# Instructions Vegetable Soup Recipe Variations
+# Instructions 
 
-- Use all carrot or all sweet potato instead of both, or add butternut squash instead.
+- Place peeled pumpkin, onion, garlic, broth/stock and water into a pot;
 
-- Toss in a few sliced cremini mushrooms when you add the carrot.
+- Boil rapidly for 15 minutes until pumpkin is very tender;
 
-- Swap bell pepper for the cherry tomatoes, zucchini, or green beans.
+- Use a stick blender or transfer to blender to blitz smooth; and
 
-- Use another leafy green, like spinach or chard, in place of the kale.
+- Adjust salt and pepper to taste, then add either milk OR cream – whichever you prefer.
 
-- Garnish bowls with chopped fresh parsley or basil, a scoop of pesto, or sprinkle of Parmesan cheese!
+- The secret ingredients are the garlic and onion. It makes all the difference to add extra savouriness!
 
 # Finishes:
 125 - 180 ml cream 
